@@ -16,19 +16,39 @@ Keyboard: Razer Cynosa Lite Chroma
 Headphones: Razer Nari Essential
 
 📱 Social Media
+
 ► YouTube: https://www.youtube.com/@IAGamingWayYT/
 
-► Discord: iagamingway#0001
-► Instagram: https://bit.ly/3sE9e8F
-► Twitter: https://bit.ly/3aQOpy3
-► Twitch: https://bit.ly/IAGW_TW
-► Trovo: https://bit.ly/IAGW_TR
-► TikTok: https://bit.ly/3oJitTB ♻
-► Guilded: https://bit.ly/3pysTpl
+► Discord: 
+iagamingway#0001
+
+► Instagram: 
+https://bit.ly/3sE9e8F
+
+► Twitter: 
+https://bit.ly/3aQOpy3
+
+► Twitch: 
+https://bit.ly/IAGW_TW
+
+► Trovo: 
+https://bit.ly/IAGW_TR
+
+► TikTok: 
+https://bit.ly/3oJitTB ♻
+
+► Guilded: 
+https://bit.ly/3pysTpl
 
 ⛏ Programs
 Video Editor: Premiere Pro
+
 YT Shorts Editor: Movavi Video Editor
+
 Audio: Adobe Audition
+
 Image: Photoshop
+
 Recorder: OBS
+
+📕 That's all
