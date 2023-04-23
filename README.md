@@ -34,8 +34,6 @@ https://bit.ly/IAGW_TW
 ► Trovo: 
 https://bit.ly/IAGW_TR
 
-► TikTok: 
-https://bit.ly/3oJitTB ♻
 
 ► Guilded: 
 https://bit.ly/3pysTpl
